@@ -18,4 +18,3 @@ Hello, I am Acsa Karoline 👋
 
 🧩 - I like arts in general (for example: music, painting, theater, literature, cinema, photography, games, among others...).
 
-https://raw.githubusercontent.com/TheDudeThatCode/TheDudeThatCode/master/Assets/dino.gif
