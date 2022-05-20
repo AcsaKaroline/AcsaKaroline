@@ -1,16 +1,20 @@
-### Hi there 👋
+Hello, I am Acsa Karoline 👋
 
-<!--
-**AcsaKaroline/AcsaKaroline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🥰 - I am 15 years old;
 
-Here are some ideas to get you started:
+📚 - I am in the professional technical high school in ADM; 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🚀 - I study English, my current level is intermediate; 
+
+🌱 - I've been studying programming for about a year now;
+
+🪄- I have knowledge of marketing, design tools, word processors, robotics;
+
+🎶 - I study music and play soprano sax;
+
+✨ - I like to play sports;
+
+🧤 - I'm a goalkeeper; 
+
+🧩 - I like arts in general (for example: music, painting, theater, literature, cinema, photography, games, among others...).
+
