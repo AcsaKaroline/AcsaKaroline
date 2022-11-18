@@ -12,6 +12,8 @@ Hello, I am Acsa Karoline 👋
 
 🎶 - I toco saxofone e piano;
 
+🎤 - Amo cantar;
+
 ✨ - I like to play sports;
 
 🧤 - I'm  goleira;
