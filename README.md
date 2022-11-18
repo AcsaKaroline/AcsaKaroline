@@ -18,5 +18,4 @@ Hello, I am Acsa Karoline 👋
 
 🧤 - I'm  goleira;
 
-🧩 - I like arts in general (for example: music, painting, theater, literature, cinema, photography, games, among others...).
-
+🧩 - I like arts in general (for example: music, painting, theater, literature, cinema, photography, games,  etc.) .
