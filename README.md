@@ -1,20 +1,20 @@
 Hello, I am Acsa Karoline 👋
 
-🥰 - I am 15 years old;
+🥰 - I  tenho 16 anos;
 
-📚 - I am in the professional technical high school in ADM; 
+📚 -  Estou cursando o ensino médio profissionalizante - técnico em ADM;
 
 🚀 - I study English, my current level is intermediate; 
 
-🌱 - I've been studying programming for about a year now;
+🌱 - I've been studying programming for mais de um ano;
 
 🪄- I have knowledge of marketing, design tools, word processors, robotics;
 
-🎶 - I study music and play soprano sax;
+🎶 - I toco saxofone e piano;
 
 ✨ - I like to play sports;
 
-🧤 - I'm a goalkeeper; 
+🧤 - I'm  goleira;
 
 🧩 - I like arts in general (for example: music, painting, theater, literature, cinema, photography, games, among others...).
 
